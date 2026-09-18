@@ -1,2 +1,4 @@
-# SeaLionStatue
-California Sea Lions
+# Sea Lion Statue
+This is the story of a society of wild sea lions known as pinnipeds, fin-footed mammals, whose habitat lies in the urban setting of La Jolla, CA. You can watch them from shore, as sea lions walk and climb on all fours by rotating their large front flippers outward and turning their hind flippers forward. They roam all over the rookery like members of a family clan. Females give birth in summer when flowers are in bloom. Moms and pups bond by smell; they touch noses as if kissing, and by their cries when they call to find each other in the rookery. Sea lion moms’ birth one pup a year and will only nurse their own. When they coach their newborns to nurse, they become one like a sweet new bud on a rosebush. Moms are devoted to their pups, they are patient and caring, nursing them for nearly a year. Male sea lions weighing over 800 lbs., guard moms and pups to keep them safe. Pups waddle around like ducks chasing and climbing on each other, bringing
+a whole new meaning to the word adorable.
+
